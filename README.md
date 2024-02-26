@@ -1,6 +1,6 @@
 ### About Me
 
-Dedicate and Proactive Engineer.
+Dedicated and Proactive Engineer.
 
 Working in a dynamic and stimulating environment that fosters ongoing learning. I thrive in challenging environments where the workload pushes me to excel, considering such situations highly beneficial for bringing out my optimal performance. 
 
